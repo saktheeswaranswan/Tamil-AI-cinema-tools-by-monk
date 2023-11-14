@@ -20,3 +20,20 @@ https://www.filmcompanion.in/companion-zone/scripts
 https://www.scripts.com/script/mudhalvan_14198
 
 https://ta.wikipedia.org/wiki/%E0%AE%A4%E0%AE%BF%E0%AE%B0%E0%AF%88%E0%AE%95%E0%AF%8D%E0%AE%95%E0%AE%A4%E0%AF%88
+
+add and tell me mor3e if you can 
+
+S. Shankar
+K. Bhagyaraj
+Balaji Tharaneetharan
+M. Sasikumar
+Karthik Subbaraj
+Dharani (director)
+Bala (director)
+Mysskin
+Aabavanan
+K. Balachander
+bharathiraja director
+Visu Indian writer and director
+
+
